@@ -1,4 +1,4 @@
-jangan-buang-sampah-sembarangan
+Jangan Buang Sampah Sembarangan Development
 ===============================
 
-Jangan Buang Sampah Sembarangan Development
+Ingat! Buanglah sampah pada tempatnya! :D
